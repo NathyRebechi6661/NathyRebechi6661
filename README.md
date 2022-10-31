@@ -1,4 +1,5 @@
 - 👋 Hi, I’m @NathyRebechi6661
+- 🥰 I like Books, series, movies, Marvel, doramas, animes, some games and etc.
 - 👀 I’m interested in learn 😅 
 - 📓 I need to learn english 😂 Urgent (I searched ALMOST everything on google translator.)
 - 🌱 I’m currently learning HTML, CSS, JavaScript, C# and Database, but this is a constantly learning 
