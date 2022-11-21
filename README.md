@@ -1,5 +1,5 @@
 # 💫 About Me:
-- 👋 Hi, I’m @NathyRebechi6661<br>- 🥰 I like Books, series, movies, Marvel, doramas, animes, some games and etc.<br>- 👀 I’m interested in learn 😅 <br>- 📓 I need to learn english 😂 Urgent (I searched ALMOST everything on google translator.)<br>- 🌱 I’m currently learning HTML, CSS, JavaScript, C# and Database, but this is a constantly learning <br>- 📫 How to reach me -> <a href="https://www.instagram.com/nathyrebechi6661/">@nathyrebechi6661</a> on Instagram, <a href="https://twitter.com/NathyRebechi">@NathyRebechi</a> on Twitter or email: nathyrebechi@hotmail.com
+- 👋 Hi, I’m @NathyRebechi6661<br>- 🥰 I like pets, books, series, movies, Marvel, doramas, animes, some games and etc.<br>- 👀 I’m interested in learn 😅 <br>- 📓 I need to learn english 😂 Urgent (I searched ALMOST everything on google translator.)<br>- 🌱 I’m currently learning HTML, CSS, JavaScript, C# and Database, but this is a constantly learning <br>- 📫 How to reach me -> <a href="https://www.instagram.com/nathyrebechi6661/">@nathyrebechi6661</a> on Instagram, <a href="https://twitter.com/NathyRebechi">@NathyRebechi</a> on Twitter or email: nathyrebechi@hotmail.com
 
 
 ## 🌐 Socials:
